@@ -11,10 +11,12 @@
 
 ### ✧  ⌒⌒  **_ snuuy_** ꒰  🎶  ꒱
 ⏖ they ⨟ hehe ⸝⸝ ichi yume non-sharing
+
 [TWT ](https://x.com/_altr_evil)┄  [STRAWPAGE](https://kwaziicase.straw.page/)┆︎[ATABOOK ](https://kwaziicase.atabook.org/?page=1).ᐟ]
 
 # ˙ . ꒷ 🍙 . 𖦹˙— 🐈‍⬛ BYI
 feel free to  C + H! I don't mind, im usually with friends! 
+
 **_INT IF YOU R A OSOMATSU FAN!_**
 
 credit to @RaspySprite  he made this for me pees a lil
