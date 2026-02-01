@@ -9,7 +9,7 @@
 
 # ✉️⋆.ೃ࿔*:･
 
-### ✧  ⌒⌒  **_ snuuy_** ꒰  🎶  ꒱
+### ✧  ⌒⌒  **_ sunny_** ꒰  🎶  ꒱
 ⏖ they ⨟ he ⸝⸝ ichi yume non-sharing
 
 [TWT ](https://x.com/_altr_evil)┄  [STRAWPAGE](https://kwaziicase.straw.page/)┆︎[ATABOOK ](https://kwaziicase.atabook.org/?page=1).ᐟ]
