@@ -12,14 +12,12 @@
 ### ✧  ⌒⌒  **_ sunny_** ꒰  🎶  ꒱
 ⏖ they ⨟ he ⸝⸝ ichi yume non-sharing
 
-[TWT ](https://x.com/_altr_evil)┄  [STRAWPAGE](https://kwaziicase.straw.page/)┆︎[ATABOOK ](https://kwaziicase.atabook.org/?page=1).ᐟ]
+[TWT ](https://x.com/soapyselkie)┄  [STRAWPAGE](https://kwaziicase.straw.page/)┆︎[ATABOOK ](https://kwaziicase.atabook.org/?page=1).ᐟ]
 
 # ˙ . ꒷ 🍙 . 𖦹˙— 🐈‍⬛ BYI
 feel free to  C + H! I don't mind, im usually playing with friends!!
 
 **_INT IF YOU R A OSOMATSU FAN!_**
-
-credit to @RaspySprite  he made this for me pees a lil
 
 
 <img width="2048" height="320" alt="Image" src="https://github.com/user-attachments/assets/784fb4b9-0e34-4309-af98-b1ed8d52c74a" />
